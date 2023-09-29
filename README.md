@@ -1,5 +1,5 @@
 # Education
-- Bachelor of Arts, Political Science | San Francisco State University | (_May 2020_)
+**Bachelor of Arts, Political Science | San Francisco State University | (_May 2020_)**
 
 ## Work Experience
 **Account Manager @ IBP Media (_January 2022 - September 2023_)**
